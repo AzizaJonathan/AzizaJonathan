@@ -1,5 +1,5 @@
 ### Hi there 👋
-![Cover](https://github.com/AzizaJonathan/AzizaJonathan/blob/main/fond-ecran-couleur-liquide_4074131.htm)
+![Cover](https://github.com/AzizaJonathan/AzizaJonathan/blob/main/devx25678.jpg)
 <!--
 **AzizaJonathan/AzizaJonathan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
